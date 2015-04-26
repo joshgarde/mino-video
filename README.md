@@ -1,1 +1,1 @@
-# mino(mino-Is Not OBS-video
+# mino(mino-Is Not OBS)-video
